@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Parmvir2345
+- 👋 Hi, I’m Parmvir
 - 📫 How to reach me at singhparamvir2004@gmail.com
 - 😄 Pronouns: Parm
 <!---
